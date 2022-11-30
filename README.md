@@ -1,1 +1,0 @@
-# salemketata.github.io
